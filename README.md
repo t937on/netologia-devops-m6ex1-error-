@@ -1,1 +1,0 @@
-# netologia-devops-m6ex1-error-
